@@ -36,7 +36,7 @@ My career includes key roles in both public and private sectors, where I have le
 
 - **Government Office of Information and Communication Technologies (OGTIC)**  
   *Head of the Research and Documentation Division for Standards*  
-  _October 2022 - October 2023_  
+  _October 2019 - October 2023_  
   Researched and developed IT standards, contributing to the digital governance framework in the Dominican Republic.
 
 ---
